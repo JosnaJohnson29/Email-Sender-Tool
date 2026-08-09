@@ -1,0 +1,1 @@
+https://www.linkedin.com/posts/josna-johnson-894a29392_python-softwaredevelopment-emailautomation-activity-7491850336836710400-T3Kf?utm_source=share&utm_medium=member_desktop&rcm=ACoAAGCdu7AB3McqJazzcJ3w2cmEvw-1JU5jJNc
